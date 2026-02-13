@@ -1,3 +1,1 @@
-# belajar kolaborasi
-
-gajelas anjing
+# belajar-kolaborasi
