@@ -1,6 +1,7 @@
 # belajar-kolaborasi
 
-
-kocakockaoak
-
-lah gatau
+gajelasss
+--
+monyttt
+--
+ini udah ajg
